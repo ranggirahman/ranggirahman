@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ranggirahman
-- 👀 I’m interested in UI, UX and AI
+- 👀 I’m interested in Design and AI
 - 🌱 I’m currently learning design and artificial intelligence stuff.
 - 📫 How to reach me by email ranggirahman@gmail.com
 
